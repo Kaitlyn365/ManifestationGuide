@@ -50,10 +50,10 @@ YOU have the ability to revise your whole life to be exactly how you desire
 
 YOU have the ability to shift to your desired reality tonight
 
-YOU have the power!Something is not going right? BAM now it is
+YOU have the power!
 
+Something is not going right? BAM now it is
 Something bothering you? BAM it's gone!
-
 SOMEONE BOTHERING AND HURTING YOU! BAM THEY NEVER EXISTED
 
 NOTHING IS IMPOSSIBLE!
