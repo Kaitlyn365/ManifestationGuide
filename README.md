@@ -2,7 +2,7 @@
 PART I - 3D IS COMPLETELY FAKE
 !!!!!THIS REALIZATION MAY TRIGGER DISSOCIATION (IT DID FOR ME) SO BEWARE BEFORE READING ON!!!!!
 
-Also this realization is a little weird, just try not to overcomplicate it
+Also this realization is a little weird, just try not to overcomplicate it
 
 I'm pretty sure you already have a good gist on what Law Of Assumption is so we will skip to the facts.
 
