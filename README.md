@@ -20,7 +20,11 @@ You can easily change your 3D just by changing your assumptions, once you do, yo
 
 
 PART II - PAY ATTENTION TO 4D
-Why are you even paying attention to your 3D? Everything comes from inside first! If your 3D is fake and you need to change your assumptions to change your reality, then that means everything you don't need to look in the 3D for ANYTHING, you need to look in the 4D for everything!For Example:Sam wants to manifest blades for s/h, so he affirms “I have an impossibly sharp blade” and he goes about his day, every single time he thinks about his blade. He thinks “I already have a blade, it's so sharp”. He did this even when his reality showed him otherwise, he kept affirming even when he started to have anxiety and think that his desire wouldn't come. He reminded himself ‘what i see is not real, it never was’ and he closed his eyes and visualized himself using his blade, this made him happy and he kept affirming, soon he manifested a blade.
+Why are you even paying attention to your 3D? Everything comes from inside first! If your 3D is fake and you need to change your assumptions to change your reality, then that means everything you don't need to look in the 3D for ANYTHING, you need to look in the 4D for everything!  
+
+For Example:
+
+Sam wants to manifest blades for s/h, so he affirms “I have an impossibly sharp blade” and he goes about his day, every single time he thinks about his blade. He thinks “I already have a blade, it's so sharp”. He did this even when his reality showed him otherwise, he kept affirming even when he started to have anxiety and think that his desire wouldn't come. He reminded himself ‘what i see is not real, it never was’ and he closed his eyes and visualized himself using his blade, this made him happy and he kept affirming, soon he manifested a blade.
 
 
 What did Sam do?
